@@ -1,2 +1,2 @@
 # fruit
-All kinds of fruitful knowledge
+I am the bone of my sword
